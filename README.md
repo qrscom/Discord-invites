@@ -1,8 +1,8 @@
 
 # Discord Invites List 
 
-I saw ppl selling invites for real money so other ppl can fill tokens to nitro snipe so i decided to put out all the invites i gathered in january 2023 all of these tokens were checked and i will be putting more after im done running them through my checker bcs i have a few mil so theirs alot 
-
+I saw ppl selling invites for real money so other ppl can fill tokens to nitro snipe so i decided to put out all the invites i got in january 2023 from my sniper all of these invites were checked and i will be putting more after im done running them through my checker bcs i have a few mil so theirs alot 
+If i get 10 ⭐ ill upload more invites and free email verfied tokens 
 
 
 # 
@@ -11,4 +11,3 @@ I saw ppl selling invites for real money so other ppl can fill tokens to nitro s
 
 ## Support
 
-If i get 10 ⭐ ill upload more invites and free email verfied tokens 
